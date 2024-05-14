@@ -1,0 +1,6 @@
+![Screenshot 2024-05-07 183930](https://github.com/Shambhavi-J/ecomarine/assets/128165840/f5d145f4-a1e0-42ae-b3e4-b6e237ea664d)
+![Screenshot 2024-05-07 213527](https://github.com/Shambhavi-J/ecomarine/assets/128165840/f23c0a5a-6894-4e84-8558-0d657d10ee36)
+![Screenshot 2024-05-07 204753](https://github.com/Shambhavi-J/ecomarine/assets/128165840/3ecbb770-31d8-4be8-a912-105fafc2616e)
+![Screenshot 2024-05-07 184454](https://github.com/Shambhavi-J/ecomarine/assets/128165840/b5d342bd-489e-4286-a7f1-73bc035b7596)
+![Screenshot 2024-05-07 184355](https://github.com/Shambhavi-J/ecomarine/assets/128165840/67ec2e46-ea8c-4a35-863f-8351bd9a675c)
+![Screenshot 2024-05-07 184140](https://github.com/Shambhavi-J/ecomarine/assets/128165840/4f12479a-1636-4b59-b9db-4a58292c886a)
